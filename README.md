@@ -1,0 +1,2 @@
+# oeyrik
+öğrenme amaçlı
